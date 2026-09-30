@@ -27,4 +27,4 @@ B.Sc Cyber Security
 Excel Engineering College
 
 ## Academic Year
-2026–2027
+2025–2028
